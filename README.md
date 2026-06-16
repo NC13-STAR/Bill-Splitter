@@ -1,4 +1,4 @@
-ill Splitter Pro
+Bill Splitter Pro
 
 Split smart. Settle easy.
 
